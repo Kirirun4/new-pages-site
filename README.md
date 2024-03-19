@@ -1,10 +1,11 @@
 Саыинх Кирилл
 ============
-![photo_2021-12-18_17-14-51](https://github.com/Kirirun4/new-pages-site/assets/88333835/7d52dc97-799b-475f-befe-a8a4c8d89185)
+![photo_2021-12-18_17-14-51](https://github.com/Kirirun4/new-pages-site/assets/88333835/1f43509f-ef29-487c-ad90-30d6df42abbe)
 ============
 -------------------     ----------------------------
-eMail                       kirill.savinyh@gmail.com
-Telegram                                   @Kirirun4
+eMail:                      kirill.savinyh@gmail.com
+
+Telegram:                                  @Kirirun4
 -------------------     ----------------------------
 Курсы
 ---------
