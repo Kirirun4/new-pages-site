@@ -1,6 +1,6 @@
-#Саыинх Кирилл
+# Савыинх Кирилл
 
-##![photo_2021-12-18_17-14-51](https://github.com/Kirirun4/new-pages-site/assets/88333835/1f43509f-ef29-487c-ad90-30d6df42abbe)
+## ![photo_2021-12-18_17-14-51](https://github.com/Kirirun4/new-pages-site/assets/88333835/1f43509f-ef29-487c-ad90-30d6df42abbe)
 
 -------------------     ----------------------------
 
